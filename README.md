@@ -1,2 +1,2 @@
-# game-jam-2018-2
-Best game
+# Game Jam 2018/2
+Best team = Best game = PS4
